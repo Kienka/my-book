@@ -1,1 +1,1 @@
-# Chapter 3: The Forgotten Chanp
+# Chapter 3: The Forgotten Champ
